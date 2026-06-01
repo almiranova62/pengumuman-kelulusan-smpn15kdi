@@ -1,1 +1,1 @@
-# pengumuman-kelulusan-smpn15kdi
+# smpn15kdi
